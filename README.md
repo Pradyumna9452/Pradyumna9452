@@ -14,6 +14,6 @@ Talking about Personal Stuffs: 🔭 I’m currently looking for job opportunitie
 
 📫 How to reach me: pradyumnavikramsingh@gmail.com
 
-My Absolute Favorites: 💻 I love exploring new tech stack and building cool stuffs.
+My Absolute Favorites: 💻 I love exploring new tech stack and building cool stuffs..
 
 📰 Reading & writing tech blogs whenever possible.
